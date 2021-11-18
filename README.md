@@ -1,0 +1,1 @@
+# akichanteck.github.io
